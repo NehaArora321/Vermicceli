@@ -1,0 +1,1 @@
+Take lots of veggies of your choice and chop them sort, roasted vermicceli, oil, salt to taste and other spices.
